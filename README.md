@@ -1,3 +1,31 @@
 # bCombo
 idk man ..its confusing u know
-d،
+dd
+d
+ss
+s
+s
+
+s
+s
+s
+s
+s
+ss
+s
+s
+s
+ss
+s
+
+s
+
+s
+ss
+s
+a
+a
+a
+s
+s
+s
